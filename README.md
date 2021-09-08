@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/thrivikram3301" target="blank"><img src="https://img.shields.io/twitter/follow/thrivikram3301?logo=twitter&style=for-the-badge" alt="thrivikram3301" /></a> </p>
 
-- 😄 Pronouns: [He/Him 💁‍♂️](He/Him 💁‍♂️)
+- 😄 Pronouns: [He/Him 💁‍♂️]
 
 - 💬 Ask me about **anything !!!**
 
